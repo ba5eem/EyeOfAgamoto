@@ -1,1 +1,1 @@
-# EyeOfAgamoto
+# Eye Of Agamoto
